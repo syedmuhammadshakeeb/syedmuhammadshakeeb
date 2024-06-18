@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=syedmuhammadshakeeb&label=Profile%20views&color=0e75b6&style=flat" alt="syedmuhammadshakeeb" /> </p>
 
-- 🌱 I’m currently learning **flutter**
+- 🌱 I’m working in the field of mobile application as **flutter** developer since last 1 year
 
 - 💬 Ask me about **flutter**
 
