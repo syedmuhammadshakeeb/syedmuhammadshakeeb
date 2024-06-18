@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shakeeb12a@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/129A2dQ41UD3VR-hf6v-Ft_rSXM0lR2Dc/view?usp=drive_link](https://drive.google.com/file/d/129A2dQ41UD3VR-hf6v-Ft_rSXM0lR2Dc/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/129A2dQ41UD3VR-hf6v-Ft_rSXM0lR2Dc/view?usp=drive_link](https://drive.google.com/file/d/1PFRU_VfGRaa0cB5ZZIwLNBiyYT3y5jQ7/view?usp=drivesdk)
 
 - ⚡ Fun fact **I am funny**
 
